@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Avocadoisgreenbutter, I'm 17 and from Britain
+- 👋 Hi, I’m @Avocadoisgreenbutter, I'm 18 and from Britain
 - 👀 I’m interested in sustainability and accessibility 
 - 🌱 I’m currently learning more about stablecoins and blockchain
 - 📫 How to reach me on here or on instagram! under the same username 
